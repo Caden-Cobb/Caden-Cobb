@@ -1,1 +1,1 @@
-![Blue Minimalist Simple Travel Channel Name Youtube Banner](https://github.com/Caden-Cobb/Caden-Cobb/assets/90775304/dc4d40ea-612b-4ad5-9d11-e7e233169b91)
+![Wallpaper](https://github.com/Caden-Cobb/Caden-Cobb/assets/90775304/6a24b17a-5cac-4eda-b2c2-ee1fa095df84)
